@@ -1,1 +1,3 @@
-# oketcheugyn.github.io
+# oketch hub
+## details
+### omondi oketch eugyn
